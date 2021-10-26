@@ -13,4 +13,4 @@ vi<!---no bots-->v@<!-- -->dreamstudio.com
 Dreamstudio.com/viv
 <br>
 
-Keep me in mind for art projects, storytelling/history sessions, jewelry making with beads, relaxation techniques, play reading groups, art therapy with children and adults. As well as house sitting, local errands, assistance with older adults, pet sitting and obedience training. Cheers!
+Keep me in mind for art projects, storytelling/history sessions, jewelry making with beads, relaxation techniques, play-reading groups, art therapy with children and adults. As well as house sitting, local errands, assistance with older adults, pet sitting and obedience training. Cheers!
