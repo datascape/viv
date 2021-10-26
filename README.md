@@ -4,7 +4,7 @@ Hi, I'm a retired educator and art therapist. I've worked with children and adul
 
 I'm interested in moving to the neighborhood. Let me know if you know of anyone interested in renting a room for around $600/month.
 
-I can assist a senior with shopping and cooking. I'm also a dog trainer and I enjoy spending time doing creative projects with both children and seniors. My art therapy background includes grief and loss counseling.  
+I can assist a senior with shopping and cooking. I'm also a dog trainer and I enjoy doing creative projects with both children and seniors. My art therapy background includes grief and loss counseling.  
 
 Please contact me at: 
 
